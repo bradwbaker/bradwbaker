@@ -15,7 +15,7 @@ Some of my techincal skills include:
 - Data Visualization
 
 📫 How to reach me:
-bradleybaker@email.arizona.edu
+bradleybaker@email.arizona.edu |
 https://www.linkedin.com/in/bradley-baker22/
 
 
